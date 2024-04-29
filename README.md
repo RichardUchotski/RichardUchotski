@@ -23,7 +23,7 @@ I have a background in software engineering with expertise in .NET, Python, Java
 - **Investing:** Growing my financial portfolio is both a hobby and a pathway to financial freedom.
 
 ## Goals
-My primary goals include achieving peak fitness, mastering coding skills, shedding 10kg, and expanding my financial portfolio. Balancing these objectives while making time for personal relationships, including my partner Roseanne, is a challenge I eagerly embrace.
+My primary goals include achieving peak fitness, mastering coding skills, shedding 10kg, and expanding my financial portfolio. Balancing these objectives while making time for personal relationships, is a challenge I eagerly embrace.
 
 ## Expertise and Interests
 I'm deeply knowledgeable about subjects such as cell engineering, cultured meat, stem cells, nutrition, genetics, and personal finance. Engaging in in-depth discussions on these topics is something I thoroughly enjoy.
